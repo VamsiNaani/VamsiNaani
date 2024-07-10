@@ -1,0 +1,6 @@
+-  Hi, I’m Vamsi, Student from REVA University.
+-  I’m interested in core Electronics.
+-  I’m currently learning VLSI Technology.
+-  I’m looking forward to get exposure towards Industrial experience. 
+-   Email:sujinaani1608@gmail.com.
+-   LinkedIn: www.linkedin.com/in/vamsi-b-b41589288
